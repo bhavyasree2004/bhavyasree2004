@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **bhavyasree1504@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/safety/go?url=https%3A%2F%2Fdrive.google.com%2Ffile%2Fd%2F1FEJBj6dvzBzD9bgty0vF7BxBdl2bYQT7%2Fview%3Fusp%3Ddrivesdk&trk=flagship-messaging-web&messageThreadUrn=urn%3Ali%3AmessagingThread%3A2-ODA1MjY1MzItNjY1MS00OWRhLWJmMDItYWZjYWUzNWJmNDU5XzAxMA%3D%3D&lipi=urn%3Ali%3Apage%3Ad_flagship3_messaging_conversation_detail%3B8Wkv7zn%2BR%2Byv9%2BkOwh%2B7Ig%3D%3D](https://www.linkedin.com/safety/go?url=https%3A%2F%2Fdrive.google.com%2Ffile%2Fd%2F1FEJBj6dvzBzD9bgty0vF7BxBdl2bYQT7%2Fview%3Fusp%3Ddrivesdk&trk=flagship-messaging-web&messageThreadUrn=urn%3Ali%3AmessagingThread%3A2-ODA1MjY1MzItNjY1MS00OWRhLWJmMDItYWZjYWUzNWJmNDU5XzAxMA%3D%3D&lipi=urn%3Ali%3Apage%3Ad_flagship3_messaging_conversation_detail%3B8Wkv7zn%2BR%2Byv9%2BkOwh%2B7Ig%3D%3D)
+- 📄 Know about my experiences (https://drive.google.com/file/d/1FEJBj6dvzBzD9bgty0vF7BxBdl2bYQT7/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
