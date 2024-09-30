@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Bhavya Sree Munagavalasa</h1>
 <h3 align="center">💻 A passionate learner with innovative insights✨</h3>
 
-## You can catch me up here! <p align = "left"><img align="center" src="https://github.com/rajput2107/rajput2107/blob/master/Assets/Handshake.gif" height="30px" /></p>
+## You can catch up with me here! <p align = "left"><img align="center" src="https://github.com/rajput2107/rajput2107/blob/master/Assets/Handshake.gif" height="30px" /></p>
 
 - 🔭 I’m currently working on **an e-commerce application as a part of my certification course on Java Full Stack Web Development course with Spring Boot from Coding Ninjas.**
 
