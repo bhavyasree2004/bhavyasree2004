@@ -3,7 +3,7 @@
 
 ## You can catch up with me here! <p align = "left"><img align="center" src="https://github.com/rajput2107/rajput2107/blob/master/Assets/Handshake.gif" height="30px" /></p>
 
-- 🌱 I’m currently learning **Flutter, ReactJS, SpringBoot**
+- 🌱 I’m currently learning **ReactJS, SpringBoot**
 
 - 💬 Ask me about **Java**
 
